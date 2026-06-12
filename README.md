@@ -1,4 +1,4 @@
-![I am a Web Developer](https://pbs.twimg.com/profile_banners/1890734910635376640/1781258974/600x200)
+![I am a Web Developer](https://pbs.twimg.com/profile_banners/1890734910635376640/1781275712/600x200)
 
 ### Hi there 👋, My name's Abdullah Al Zubair
 #### I am a Web Developer
